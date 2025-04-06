@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Lawuru David Weyimi (aka Caelestibus)
+# 👋 Hi, I'm Lawuru David Weyinmi
 
 🎯 **Technical Product Manager & Cybersecurity Enthusiast** | 🚀 Building Secure EdTech & FinTech Systems | 🧠 Psychology x AI x APIs
 
